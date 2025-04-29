@@ -1,1 +1,0 @@
-# GedevaStudio.github.io
